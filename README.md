@@ -1,3 +1,3 @@
-My favorite animals
+My Favorite Animals
 
 by Alfred Neves
